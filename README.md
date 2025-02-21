@@ -1,7 +1,7 @@
 胸前的两只大小白兔上下晃动跳动
 
 
-<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
 
 三，二，一……
